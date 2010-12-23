@@ -1,4 +1,4 @@
-Peanut-and-Pretzel-Bark
+Peanut and Pretzel Bark
 -----------------------
 
 >Yields 2 1/4 lbs
